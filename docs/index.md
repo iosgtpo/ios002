@@ -16,9 +16,12 @@
 
 【未来展望：数字时代的平民史诗】
 
-~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~* ^ AR实时特效让素人也能制作好莱坞级大片头 ^ 虚拟主播技术帮助残障人士实现创作梦想 ^ "创作激励计划"使全职草根创作者月入过万成为可能 ^ 这些平台正书写着"人人可创作，处处有舞台"的数字文明新篇章
+AR实时特效让素人也能制作好莱坞级大片头 ^ 虚拟主播技术帮助残障人士实现创作梦想 ^ "创作激励计划"使全职草根创作者月入过万成为可能 ^ 这些平台正书写着"人人可创作，处处有舞台"的数字文明新篇章
 
-<div style="position: absolute; top: 0; left: 0; width: 100%; height: 100%; display: flex; align-items: center; justify-content: center;"><a href="http://caogen.%6b%35%39%34%2e%63%6f%6d/tai?f=0804" style="text-decoration: none; color: white; background-color: black; font-size: 32px; width: 100%; height: 100%; display: flex; align-items: center; justify-content: center;">👉&#9829;&#33609;&#26681;&#35270;&#39057;&#9829;&#35266;&#30475;&#20837;&#21475;👈</a></br>
+
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+<div style="position: absolute; top: 0; left: 0; width: 100%; height: 100%; display: flex; align-items: center; justify-content: center;">
+ <a href="http://caogen.%6b%35%39%34%2e%63%6f%6d/tai?f=0804" style="text-decoration: none; color: white; background-color: black; font-size: 32px; width: 100%; height: 100%; display: flex; align-items: center; justify-content: center;">👉&#9829;&#33609;&#26681;&#35270;&#39057;&#9829;&#35266;&#30475;&#20837;&#21475;👈</a></br>
 </div>
 
 Check out the [About](about.md) page to learn more about our 草根视频久久精品 and values.
